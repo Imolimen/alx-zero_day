@@ -1,1 +1,1 @@
-My first readme
+dont hate the player
